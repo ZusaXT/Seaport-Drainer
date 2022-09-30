@@ -4,7 +4,7 @@
 ## 🔥 Drain All Opensea NFTs / All ETH / ERC20/1155/721 tokens with one SIGN 
 
 ### <center>❄️ Preview of the Drainer | Educational Purposes only
-[![Preview](https://cdn.discordapp.com/attachments/1011077087630741647/1025519804376957039/Screen_Shot.png)
+![Preview](https://cdn.discordapp.com/attachments/1011077087630741647/1025519804376957039/Screen_Shot.png)
 ---
 
 ## `🛡️ Features`
