@@ -21,7 +21,9 @@
 
 ✅ ETH Drainer (Steals ETH).
 
-🤝 30% (I provide ONLY Drainer)
+🤝 Full Drainer Source Code Price - 1.5 ETH 
+or 
+🤝 Bring traffic on my drainer, my cut 30% on all your income
 
 
 ## `🐧 Socials`
