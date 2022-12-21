@@ -1,4 +1,4 @@
-# Welcome! ` [SAFA BYPASS SEAPORT DRAINER] `
+# Welcome! ` [PRICE REDUCED TO 1 ETH] `
  ### 📩**Message me on [Telegram](https://t.me/ZusaXTbackup) to buy the full backend + frontend clean source codes.**
 ---
 ## 🔥 Our Drainer literally drains EVERY. SINGLE. POSSIBLE. TYPE. OF. TOKEN. FROM VICTIM
@@ -21,9 +21,7 @@
 
 ✅ ETH Drainer (Steals ETH).
 
-🤝 Full Drainer Source Code Price - 1.5 ETH 
-or 
-🤝 Bring traffic on my drainer, my cut 30% on all your income
+🤝 Full Drainer Source Code Price - 1 ETH Only
 
 
 ## `🐧 Socials`
